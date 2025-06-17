@@ -55,4 +55,3 @@ Reducing attrition by just **5%** could save an estimated **£150K–£300K annu
 ## 📬 Contact
 **Ade Ajayi**  
 [Portfolio Website](https://sites.google.com/view/adeajayiportfolio)  
-[LinkedIn](https://www.linkedin.com/in/your-profile) *(update this)*  
